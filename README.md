@@ -1,1 +1,0 @@
-# Pictogram-Animal-Art
